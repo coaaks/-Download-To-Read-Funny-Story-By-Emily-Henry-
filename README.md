@@ -2,8 +2,8 @@
 
 "Here Options to Downloading or Read Book of Funny Story BY : Emily Henry the PDF online for free on Server Amazon, Reddit, Goodreads.
 
-### [? READ ??? Funny Story](https://en.ebooksteach.xyz/?book=194802722-funny-story)
-### [? DOWNLOAD ??? Funny Story](https://en.ebooksteach.xyz/?book=194802722-funny-story)
+### [➤ READ ✅➤➤ Funny Story](https://en.ebooksteach.xyz/?book=194802722-funny-story)
+### [➤DOWNLOAD ✅➤➤ Funny Story](https://en.ebooksteach.xyz/?book=194802722-funny-story)
 
 File format : ePub, PDF, Kindle, AudioBook
 
@@ -18,4 +18,3 @@ Download Funny Story
 PDF/Ebook Funny Story
 
 Now You ready to Read Or Download Funny Story
-"
